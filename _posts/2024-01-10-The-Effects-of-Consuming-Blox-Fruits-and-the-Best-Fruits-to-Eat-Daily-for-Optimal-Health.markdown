@@ -9,7 +9,7 @@ excerpt_image: https://simplegameguide.com/wp-content/uploads/2023/02/Blox-Fruit
 
 ### Paramecia Fruit Effects
 
-Paramecia fruits found in the Blox Fruits game world can grant either permanent or temporary abilities when consumed by players. These fruits are often the first fruits obtained during the early levels and give basic enhanced mobility or defensive skills. Common paramecia fruits provide abilities like increased jumping, running speed, or resistance to damage for a limited time.
+Paramecia fruits found in the [Blox Fruits](https://39.io.vn/en/List_of_Roblox_games#Blox_Fruits) game world can grant either permanent or temporary abilities when consumed by players. These fruits are often the first fruits obtained during the early levels and give basic enhanced mobility or defensive skills. Common paramecia fruits provide abilities like increased jumping, running speed, or resistance to damage for a limited time.
 
 
 ![](https://simplegameguide.com/wp-content/uploads/2023/02/Blox-Fruits-Best-Fruits-Tier-List.jpg)
